@@ -947,3 +947,4 @@
 * [BTW](https://booktriggerwarnings.com/) - Book Trigger Warnings
 * [DIY Book Scanner](https://diybookscanner.org/) - How to Scan Books
 * [The Submission Grinder](https://thegrinder.diabolicalplots.com/) - Find a Publisher
+* [The Book of Akbar and Birbal Stories](https://sagadoor.in/akbar-and-birbal-stories-%e0%a4%85%e0%a4%95%e0%a4%ac%e0%a4%b0-%e0%a4%ac%e0%a4%b0%e0%a4%ac%e0%a4%b2-%e0%a4%95-%e0%a4%95%e0%a4%b9%e0%a4%a8%e0%a4%af/)-Premium Hindi Stories
